@@ -12,7 +12,7 @@
    
 ## Industria o Rubro :sparkles:
 
-**:loudspeaker: Foro. :loudspeaker: :left_speech_bubble:**
+**:loudspeaker: Foro. :left_speech_bubble:**
 
 ## :pencil: Descripción
 
